@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @projetos-ecomp
+- 👀 Sou a conta da Diretoria de Projetos da @ecomp.co
